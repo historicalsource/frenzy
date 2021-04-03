@@ -24,18 +24,18 @@ Obituary for ALan McNeil:
 
 Alan Rideout McNeil age 66, died of a heart attack on the 29th of December, 2017.  The family wishes to thank the neighbors, the Sheriff’s department, and the Coroner, all of whom were most helpful in the midst of the recent blizzard conditions.
 
-        Alan was the son of Cecily and Edward McNeil. He was born in Urbana, Illinois in 1951 and lived there until he was five, when the McNeil’s moved to Chicago. There he attended the Laboratory School of the University of Chicago from first grade through High School. He was most interested in art. After graduation he enrolled at the University of Illinois in Chicago, where his father Edward was a professor of physics.  There, Alan majored in art, not the conventional pen and brush sort of art, but “performance art,” and also computer-generated art. That was back in the pre-internet days when computers were cumbersome and required stacks of perforated cardboard slips.
+Alan was the son of Cecily and Edward McNeil. He was born in Urbana, Illinois in 1951 and lived there until he was five, when the McNeil’s moved to Chicago. There he attended the Laboratory School of the University of Chicago from first grade through High School. He was most interested in art. After graduation he enrolled at the University of Illinois in Chicago, where his father Edward was a professor of physics.  There, Alan majored in art, not the conventional pen and brush sort of art, but “performance art,” and also computer-generated art. That was back in the pre-internet days when computers were cumbersome and required stacks of perforated cardboard slips.
 
-        After graduating from college, Alan worked for a year or so at a Chicago trading firm, doing electronic stock transfers. Then he went to work for a company devoted to video games, which at that time resembled pinball machines and were available in the same type of venue. 
+After graduating from college, Alan worked for a year or so at a Chicago trading firm, doing electronic stock transfers. Then he went to work for a company devoted to video games, which at that time resembled pinball machines and were available in the same type of venue. 
 
-        Alan was the creator of one of the most famous of these early games: Berzerk.  It made money for his employers, big time, but not so much for him.
+Alan was the creator of one of the most famous of these early games: Berzerk.  It made money for his employers, big time, but not so much for him.
 
-        In about 1987, Alan and his then wife, Karen Chesna McNeil, moved to the Flathead.  Their children, Henry and Fiona McNeil, attended the Kalispell Montessori schools, and later, Flathead High School.
+In about 1987, Alan and his then wife, Karen Chesna McNeil, moved to the Flathead.  Their children, Henry and Fiona McNeil, attended the Kalispell Montessori schools, and later, Flathead High School.
 
-        Alan is survived by his children—Henry and Fiona— and also by his mother, and his brother, Bruce McNeil, as well as his nieces , Lt. Commander Anna McNeil and Ellie McNeil, and his young nephew Eddie McNeil.
+Alan is survived by his children—Henry and Fiona— and also by his mother, and his brother, Bruce McNeil, as well as his nieces , Lt. Commander Anna McNeil and Ellie McNeil, and his young nephew Eddie McNeil.
 
-        Alan loved the North Fork, where his parents had brought their two sons for summers when they were boys. He held office in North Fork organizations over the years, and was seriously conservation-minded.  He also loved music and was an accomplished pianist.
+Alan loved the North Fork, where his parents had brought their two sons for summers when they were boys. He held office in North Fork organizations over the years, and was seriously conservation-minded.  He also loved music and was an accomplished pianist.
 
-        One of Alan’s gifts was his easy comradeship with children. He taught at Montessori for a year and was a scoutmaster when his son was in a Boy Scout troop.  
+One of Alan’s gifts was his easy comradeship with children. He taught at Montessori for a year and was a scoutmaster when his son was in a Boy Scout troop.  
 
-        Responsible, friendly, creative, kind—his family and friends will miss him dearly.
+Responsible, friendly, creative, kind—his family and friends will miss him dearly.
