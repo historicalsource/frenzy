@@ -20,7 +20,7 @@ After the game was in production, they didn't pay me the royalties and I had to 
 
 That process took most of 1982 and cost me 10% of all monies collected.
 
-Obituary for ALan McNeil:
+Obituary for Alan McNeil:
 
 Alan Rideout McNeil age 66, died of a heart attack on the 29th of December, 2017.  The family wishes to thank the neighbors, the Sheriff’s department, and the Coroner, all of whom were most helpful in the midst of the recent blizzard conditions.
 
